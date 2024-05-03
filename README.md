@@ -12,7 +12,7 @@ I'm currently studying IT, with main interest in Cybersecurity, ethical hacking,
    
 3. More to come! 🧠
 
-Follow my journey towards becoming a cybersecurity analyst! 😎 
+Follow my journey towards becoming a Cybersecurity analyst! 😎 
 
 I'm always open to meeting new people and collaborating on exciting projects, so feel free to reach out to me! 
 
