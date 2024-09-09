@@ -1,6 +1,6 @@
 ### Hi there! 👋
 
-I'm IllyrianCyber, and welcome to my little corner on GitHub! 😊 
+I'm 26zl, and welcome to my little corner on GitHub! 😊 
 
 I'm currently studying IT, with main interest in Cybersecurity, ethical hacking, backend development, and both Windows and Linux systems.
 
