@@ -2,7 +2,7 @@
 
 I'm 26zl, and welcome to my little corner on GitHub! 😊 
 
-I'm currently studying IT, with main interest in Cybersecurity, ethical hacking, backend development, and Windows, Linux and MAC OS systems.
+I'm currently studying IT, with main interest in Cybersecurity, ethical hacking, backend development, Windows, Linux and MAC OS systems.
 
 ## Current projects that will be added to GitHub end of 2024:
 
